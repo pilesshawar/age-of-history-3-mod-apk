@@ -6,7 +6,7 @@
 
 *Age of History 3 Mod APK* is a turn-based strategy game where players take control of a civilization, aiming to achieve global domination. Developed by Łukasz Jakowski, this game focuses on diplomacy, military tactics, and resource management, creating an in-depth experience within the *Age of History* series. With this mod, players gain access to unlimited everything, making the path to victory smoother and adding freedom to explore every feature.
 
->Download Here: https://modhello.com
+>Download Here: https://modhello.com/age-of-history-3/
 
 ### Features of Age of History 3 Mod APK
 
